@@ -4,7 +4,7 @@
 
 - 4 cup of flour
 - dry yeast
-- salt
+- salts
 
 ## steps
 
